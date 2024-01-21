@@ -1,2 +1,2 @@
 # craftrise-mappings
-- discord serverinda https://discord.gg/w2KHJhXPMa
+- [discord server](https://discord.gg/YmHKwCjdpJ)
